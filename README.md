@@ -57,4 +57,12 @@ Kubernetes Concepts
 Github Concepts
 AI,ML,DNN - Concepts
 April Targets
-
+Close CMDB and get certificed
+ITBM suites
+Integration and API Traffic Management
+Docker Images and Kubernetes
+Sec Ops
+Dev/Ops tool chain
+May Targets
+HR, CSM, GRC
+IT4IT
