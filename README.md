@@ -1,4 +1,4 @@
-# Metempsychoasis
+# Metempsychosis
 This is Hemanth CEO of Metem Program- Most difficult times of the world
 Mission of this Project is instil confidence into my Mind Management Project and the problem solving skills enrichment.
 Test of character - heavitly put under scrutiny and fear of getting exposed of all my shortcoming and weakness, fear of getting exploited.
@@ -66,3 +66,16 @@ Dev/Ops tool chain
 May Targets
 HR, CSM, GRC
 IT4IT
+
+Status Report March 4th 2022
+2 Years and 4 Months Passed (Since #Metempsychosis_Metv1.0 and #Metaverse_Metv2.0)
+**#Metaverse_v2.0 -Started -9th Feb 2022
+Progress report
+Joined IBM as Platform Architect and Promoted as band 9.
+Achieved - SN - CMDB, Disco, SM,EM,APM,CSDM_v3.0,PPM,HR,IRM,SAFe 5.1 (Agilist)
+To be achieveed - SN- CAD,VRM,CSM,Cloud Governance,SecOps,SAFe 5.1 Architect, Azure Cloud Foundataion, AWS CLoud foundation.
+Refreshed SN - CMDB,Disco 
+Memory Management - getting poor(constant fear and lack of confidence) and phyical health (knee and back degeneration of bones)
+Social skill - nill and very depressed and very anxious.
+Poor money management
+Lost track of the CEO skills.
