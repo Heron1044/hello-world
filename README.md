@@ -79,3 +79,7 @@ Memory Management - getting poor(constant fear and lack of confidence) and phyic
 Social skill - nill and very depressed and very anxious.
 Poor money management
 Lost track of the CEO skills.
+Constant fear of lack of memory of everthing i have worked so hard for and will be unable to remember
+- Found evidenances many a time about lack of memeory.
+- Wanted to achieve lot more at work but feel like i only know and have the skill of 1st standard kid.
+- Lack broad skill, undestanding and explanation of point of view.
